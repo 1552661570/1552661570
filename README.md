@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @1552661570
+- 👋 Hi, I’m Haoze Xinchen
 - 👀 This is a special account. It contains all my memories of CityU.
 
 
